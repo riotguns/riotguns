@@ -1,5 +1,5 @@
 
-<img width="1280" height="720" alt="New Project - 2026-11-08T025826 329" src="https://github.com/user-attachments/assets/158de77c-7663-47d0-bdcb-72138849a369" />
+<img width="1640" height="856" alt="New Project - 2026-11-09T161642 079" src="https://github.com/user-attachments/assets/50f18db2-0755-4eee-be19-938317ae0c5f" />
 
 
 hello you can call me em! i am a student who is working to do photojournalism and film work possibly :)
