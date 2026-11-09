@@ -10,6 +10,7 @@ i am a very busy person, i am involved in a bunch of extracurriculars and i valu
 i may not be online much due to this, so please be aware of this if we become friends!
 
 i love the persona series and i have completed games 3 through 5 🖤 im working to emulate the other games on my laptop!
+-> my persona faves are chidori, jin, aigis, sumire, naoto, kotone and shinjiro 
 i also really love ultrakill, doom, and animal crossing. i am very serious about animal crossing. its not funny i have 2000+ hours....
 i replay games alot i dont try new things often even if i must... i plan to get into more soon as i game in my freetime mainly
 
